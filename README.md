@@ -10,5 +10,7 @@ _hobbies_
 
 -drawing :O
 
+-bubble tea
+
 -:potato:
 (Idea used by onigiri.potato)
