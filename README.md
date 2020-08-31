@@ -6,3 +6,5 @@ _hobbies_
 -eating
 -sleeping
 -drawing
+-:potato:
+(Idea used by onigiri.potato)
