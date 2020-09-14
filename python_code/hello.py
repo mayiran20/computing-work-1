@@ -3,4 +3,4 @@
 #can u figure out how to fix it? :D
 
 from microbit import*
-display.scroll('food)
+display.scroll('food')
