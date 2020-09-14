@@ -8,3 +8,4 @@ welcome to ms low's book of words she says to 1G
 # this one ah must have 3sf one
 # you play play later addicted how
 # when i was young i played basketball you know ;>
+# aiyo your handwriting is so bad boys how you court girl next time ah?
