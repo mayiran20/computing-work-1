@@ -8,3 +8,9 @@ welcome to ms low's book of words she says to 1G
 # this one ah must have 3sf one
 # you play play later addicted how
 # when i was young i played basketball you know ;>
+
+anyways,
+:potato:
+:cheese:
+🍙
+Also i managed 2 find the onigiri emoji yey :)
